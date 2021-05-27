@@ -2,8 +2,8 @@
 
 Anggota :
 
-Irfan Saputra 2017051035
+1.Irfan Saputra 2017051035
 
-M.Faizal Ardhavy Heru 2017051021
+2.M.Faizal Ardhavy Heru 2017051021
 
-Siti Nabilla 2057051006
+3. AZZAHRA NABILA WIBIRASYA 2057051020	
